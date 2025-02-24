@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @camdotcom14
+- 👋 Hi, I’m @camerontarget14
 - 👀 I’m interested in making tools for my company, Baked Studios.
 - 🌱 I’m currently learning how to manage teams of artists and developers. 
 - 💞️ I’m looking to collaborate on new and exciting pipeline developmenmts.
