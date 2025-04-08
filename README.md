@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @camerontarget14
-- 👀 I’m interested in making tools here at Baked Studios.
+- 📚 I’m interested in learning new things about art and technology.
 - 🏄🏼‍♂️ I’m looking to collaborate on new and exciting ways to work.
 - 📫 How to reach me: you can message me here!
 
